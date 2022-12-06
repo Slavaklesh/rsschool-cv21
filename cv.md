@@ -2,5 +2,5 @@
 
 ## My contacts:     
 ### Telephone: BEL(+375) 44 585 26 11
-### Discord:   Slavaklesh
+### Discord:   Slavaklesh #8587
 ### telegram:  KLESH_97
